@@ -34,7 +34,7 @@ Maybe some of my skins might not be listed but same thing as above message me an
 # [-+ Seoul v9 Personal Skin V3](https://www.dropbox.com/s/843hhvh0c2kt90o/-%2B%20Seoul%20v9%20Personal%20Skin%20V3.osk?dl=0)
 ![](http://osu.ppy.sh/ss/12148964)
 # [- # ! 草壁 _kusakabe](https://mizaru.s-ul.eu/9PWkyMQc) 
-![](https://osu.ppy.sh/ss/11838360)
+![](https://osu.ppy.sh/ss/12149944)
 # [#azer8c but azer](https://www.dropbox.com/s/6cervc46t8bitsk/%23azer8c%20but%20azer.osk?dl=0)
 ![](https://osu.ppy.sh/ss/12148971)
 # [#azer8midnight](https://zubreska.s-ul.eu/QCTLpeU5)
