@@ -6,7 +6,7 @@ Let me know if skins are not working by messaging me on discord!Zubreska#2812
 Maybe some of my skins might not be listed but same thing as above message me and i will probably put in here if its not private skin
 
 # [- +ズブレスか-Aki-](https://zubreska.s-ul.eu/t5vW09NH)
-![](https://osu.ppy.sh/ss/12148821)
+![](https://osu.ppy.sh/ss/12808425)
 # [- +ズブレスか-Blue -](https://zubreska.s-ul.eu/fQa2tJbh)
 ![](https://osu.ppy.sh/ss/12148851)
 # [- M e g u m i n - ](https://www.dropbox.com/s/kro9ci8idriqwf4/-%20M%20e%20g%20u%20m%20i%20n%20-.osk?dl=0)
