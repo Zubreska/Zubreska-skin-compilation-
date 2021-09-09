@@ -4,7 +4,8 @@ Click on the skin name to download
 Let me know if skins are not working by messaging me on discord!Zubreska#2812
 
 Maybe some of my skins might not be listed but same thing as above message me and i will probably put in here if its not private skin
-
+# [- +@ ZubNewStuffbutnotrly]( https://zubreska.s-ul.eu/jzUPcccz)
+![](https://osu.ppy.sh/ss/17041973/f855)
 # [- +ズブレスか-Aki-]( https://zubreska.s-ul.eu/oj0SvSgK)
 ![](https://osu.ppy.sh/ss/12808425)
 # [- +ズブレスか-Blue -](https://www.dropbox.com/s/ceausa66dkycev3/-%20%2B%E3%82%BA%E3%83%96%E3%83%AC%E3%82%B9%E3%81%8B-Blue%20-.osk?dl=0)
@@ -77,8 +78,6 @@ Maybe some of my skins might not be listed but same thing as above message me an
 ![](https://osu.ppy.sh/ss/12149122)
 # [しげとらーtest](https://www.dropbox.com/s/aalzoza9lgl00pc/%E3%81%97%E3%81%92%E3%81%A8%E3%82%89%E3%83%BCtest.osk?dl=0)
 ![](https://osu.ppy.sh/ss/12149130)
-# [ズブレスか-Green](https://zubreska.s-ul.eu/g6CF7KLN)
-![](https://osu.ppy.sh/ss/12149140)
 # [ズブレスか-test](https://zubreska.s-ul.eu/yv890mPc)
 ![](https://osu.ppy.sh/ss/12149150)
 # [-elohere x seouless](https://andred.s-ul.eu/brXI4J4B)
