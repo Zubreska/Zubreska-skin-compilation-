@@ -7,7 +7,7 @@ Maybe some of my skins might not be listed but same thing as above message me an
 
 # [- +ズブレスか-Aki-]( https://zubreska.s-ul.eu/oj0SvSgK)
 ![](https://osu.ppy.sh/ss/12808425)
-# [- +ズブレスか-Blue -](https://zubreska.s-ul.eu/fQa2tJbh)
+# [- +ズブレスか-Blue -](https://www.dropbox.com/s/ceausa66dkycev3/-%20%2B%E3%82%BA%E3%83%96%E3%83%AC%E3%82%B9%E3%81%8B-Blue%20-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/12148851)
 # [- M e g u m i n - ](https://www.dropbox.com/s/kro9ci8idriqwf4/-%20M%20e%20g%20u%20m%20i%20n%20-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/12148855)
@@ -77,8 +77,6 @@ Maybe some of my skins might not be listed but same thing as above message me an
 ![](https://osu.ppy.sh/ss/12149122)
 # [しげとらーtest](https://www.dropbox.com/s/aalzoza9lgl00pc/%E3%81%97%E3%81%92%E3%81%A8%E3%82%89%E3%83%BCtest.osk?dl=0)
 ![](https://osu.ppy.sh/ss/12149130)
-# [ズブレスか-Blue](https://zubreska.s-ul.eu/Xsmj53jh)
-![](https://osu.ppy.sh/ss/12149136)
 # [ズブレスか-Green](https://zubreska.s-ul.eu/g6CF7KLN)
 ![](https://osu.ppy.sh/ss/12149140)
 # [ズブレスか-test](https://zubreska.s-ul.eu/yv890mPc)
