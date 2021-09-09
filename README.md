@@ -78,8 +78,6 @@ Maybe some of my skins might not be listed but same thing as above message me an
 ![](https://osu.ppy.sh/ss/12149122)
 # [しげとらーtest](https://www.dropbox.com/s/aalzoza9lgl00pc/%E3%81%97%E3%81%92%E3%81%A8%E3%82%89%E3%83%BCtest.osk?dl=0)
 ![](https://osu.ppy.sh/ss/12149130)
-# [ズブレスか-test](https://zubreska.s-ul.eu/yv890mPc)
-![](https://osu.ppy.sh/ss/12149150)
 # [-elohere x seouless](https://andred.s-ul.eu/brXI4J4B)
 ![](http://osu.ppy.sh/ss/12154718)
 
